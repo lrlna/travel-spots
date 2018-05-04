@@ -7,6 +7,7 @@ Current collection includes:
 - [Vancouver, BC](./vancouver.md)
 - [London](./london.md)
 - [Tokyo](./tokyo.md)
+- [Kyoto](./kyoto.md)
 
 #### Contributing
 If there are typos, or I messed up the names of the neighbourhoods or places, please feel free to make a PR!

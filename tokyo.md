@@ -124,6 +124,8 @@ on both trips. Beer and Highballs are 180 Yen, and I think that's enough said.
 - [Flower Bar Gardena](https://goo.gl/maps/q83tDcKFw7s) - Shimokitazawa. This
 is a flower shop during the day, and a bar at night, which is I think the
 reason I've came here in the first place. 
+- [Solfa](nakameguro-solfa.com) - Meguro. A bar / event space a friend told me
+  about. I'd check the schedule to see who is playing what.
 
 ## Food places
 I've literally never had bad food in Japan. I feel like you can just blindly
@@ -133,3 +135,24 @@ really enjoyed that might not be that obvious.
 - [Yazawa](https://goo.gl/maps/fZb2ZzaLrWN2) - Shimokitazawa. This is a
 Yakiniku place, and I feel like there was something very cheap or unlimited
 beer. I can't quite remember tho.
+- [hocus pocus](https://goo.gl/maps/qpiU7FnRSwL2). :donut: donut place!
+- [Konjiki](https://goo.gl/maps/J2gcgh5ck8A2). The really good ramen place
+  according to most people who are into ramen.
+- [Kikanbo](https://goo.gl/maps/C2YyUKUfZSE2). Ramen :ramen:. I've had this one
+  starred, but I can't actually remember if I went (all the ramen eating in
+Tokyo is a blur for me, so much good ramen).
+- [Ramen place in Taito](https://goo.gl/maps/jT8uAFKVdVu). This one was
+  recommended by a local. Haven't actually been but the person was adamant to
+say it was really good, so I believe them.
+
+## Things to see
+- [Shinjuku Garden Greenhouse](https://goo.gl/maps/hRK1izi3pqx). `~P~L~A~N~T~S~`!
+- [Yoyogi Park](https://goo.gl/maps/3aiPxDjXKJw). It's my fav park ever I
+  think. Always down to walk around it. Only ever been in the fall tho, but I'd
+assume it's a good park year round.
+- [Art shop / gallery thing](https://goo.gl/maps/TtWPcQszbe72). It's in Meguro and a bit of a
+conglameration of a shop with some art. If you're in the area, I'd say go for
+it!
+- [Tsukiji Market](https://goo.gl/maps/d8ARLdHVFaS2). I think everyone talks
+  about this one, so nothing new here. Just going to add that all the fish I've
+had here has been delish.

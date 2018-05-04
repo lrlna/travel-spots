@@ -135,7 +135,7 @@ really enjoyed that might not be that obvious.
 - [Yazawa](https://goo.gl/maps/fZb2ZzaLrWN2) - Shimokitazawa. This is a
 Yakiniku place, and I feel like there was something very cheap or unlimited
 beer. I can't quite remember tho.
-- [hocus pocus](https://goo.gl/maps/qpiU7FnRSwL2). :donut: donut place!
+- [hocus pocus](https://goo.gl/maps/qpiU7FnRSwL2). :doughnut: donut place!
 - [Konjiki](https://goo.gl/maps/J2gcgh5ck8A2). The really good ramen place
   according to most people who are into ramen.
 - [Kikanbo](https://goo.gl/maps/C2YyUKUfZSE2). Ramen :ramen:. I've had this one

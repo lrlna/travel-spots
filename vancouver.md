@@ -86,3 +86,26 @@ A few fancier places:
 - [Earnest](earnesticecream.com). Have whisky hazelnut for me.
 - [Soft Peaks](softpeaks.ca). Heh it's all made with honey :D
 - [Bella Gelateria](bellagelateria.com). Have the sesame one for me.
+
+## Hikes:
+If you're in Vancouver, you gotta go for a hike. It's a must. Here is a list of my favourites. Most of these are public transport accessible.
+- [Grouse Mountain BCMC Trail](https://www.vancouvertrails.com/trails/bcmc-trail/). This trail is right next to Grouse Grind, but a **lot** less crowded. Gets you up to the same top, with the same workout for the same view. For extra workout, head up to [Crown Mountain](https://www.vancouvertrails.com/trails/crown-mountain/)
+- [Lynn Valley Trails](https://www.vancouvertrails.com/trails/lynn-loop/). This trail is super fun. You can do a bunch of different variations once you get there: shorter loop, longer loop, a hike up to Lynn Peak for a nice view, or head over to the [Norvan Falls](https://www.vancouvertrails.com/trails/norvan-falls/) midway throught the longer loop. 10/10 would recommend.
+- [Capilano Canyon](https://www.vancouvertrails.com/trails/capilano-canyon/). If you don't want to pay for Capilano Suspension Bridge Park, but still want to see the canyons, head over to this trail. It's super fun, and if you go in the spring, there are about bijillion salmons jumping around in the river. It's super cute.
+- [Squamish Chief](https://www.vancouvertrails.com/trails/stawamus-chief/). This one is in Howe sound, so you do have to drive from Vancouver. The view from either of three Peaks is amazing. I'd suggest leaving Vancouver early enough to get here by about 7.30. It gets really crowded afterwards. Peak #1 is the busiest, so heading off to Peak #2 or #3 is advisable.
+- [Query Rock](https://www.vancouvertrails.com/trails/quarry-rock/). This one is nice and short ~4km. You can keep going and get to Grouse I think, but it gets really long. There is a beautiful like below when you start. You can rent Kayaks there to swoosh around. Recommend!
+
+## Fun stuff:
+Random stuff around town that's kind of interesting:
+- [Beer Island](https://goo.gl/maps/47cyscZH4D62). You can't drink in public in Canada, but if you're sneaky enough like everyone else that comes to this place, you can totally do it. Grab a beer from 33 Acres before you come. Also 'island' is an overstatement. It's super tiny. Also be careful of tides, otherwise you will have to get your ankles wet.
+- [Third Beach](https://goo.gl/maps/P1F2sNsPtsK2). This one is around Stanley Park. I prefer third beach over second, cause it's usually farther to get to, so there are less people. 
+- [Bard on the Beach](https://bardonthebeach.org/). Not at 3rd Beach, but in Kitsilano! Every summer up until the end of September I think, there is a set of Shakespeare plays getting played in open air. You're in a tent, but you do get to see the sunset. If you get a ticket, bring a blanket!
+- [Vancouver Symphony](https://www.vancouversymphony.ca/concerts/all-access-pass/). If you're under 35, you can get $15 tickets to go see a performance at the symphony. The theatre is rather small, but they put on beautiful pieces. Sometimes there are fun things, like Pixar themed performances.
+- [Van Dusen Botanical Gardens](http://vandusengarden.org/). A bit further away from the centre, but incredibly beautiful. 100% would recommend!
+- [Crab Park](https://goo.gl/maps/4ahfaD4m5KE2). This one is in Downtown Vancouver. Grab a beer from Portside near by, and bring it over here to watch the sunset. Your views: beautiful mountains, water, really cool looking cranes and shipping containers. Also an occassional helicopter landing. 
+- [Vancouver Art Gallery](http://www.vanartgallery.bc.ca/). Depends on exhibitions in town. Sometimes there is really cool stuff!
+- [JBG Gallery](https://www.thejamesblack.gallery/events2018). A new cool space, that's a little bit underground. They post their exhibitions over instagram/facebook. So if you're in town when they have something on, I suggest to stop by!
+- [Davie Street](https://www.tourismvancouver.com/vancouver/neighbourhoods/davie-village/). Queerest spot in town :pray:. Lots of good restaurants and shops. At the end of the street is a beach o/ And also to the side is a beach o/
+- [Celebreties Drag Queen Bingo Night](https://www.insidevancouver.ca/2017/10/04/drag-queen-bingo-at-celebrities-nightclub-every-wednesday/). Celebreties is usually a night club, which was lots of fun when I was 20. They also do drag shows! This event is for bingo night, which hopefully is still happening.
+- [Night Market in Richmond](https://www.visitrichmondbc.com/food-and-drink/night-markets/). So much amazing Asian food. Come on empty stomach! <-- that location is for the one I haven't been to before, but they probably relocated o/ Tbh, this is a lot more easily accessible. 
+- [Day trip to Victoria](https://en.wikipedia.org/wiki/Victoria,_British_Columbia). If you want to take a ferry over to Victoria. It's super fun, and you can do it in a day! It's a really quaint old English town kind of experience. 

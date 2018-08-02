@@ -4,8 +4,9 @@ A collection of good places to go when you're in town. These list are always gro
 
 Current collection includes:
 
-- [Vancouver, BC](./vancouver.md)
+- [Vancouver](./vancouver.md)
 - [London](./london.md)
+- [Paris](./paris.md)
 - [Tokyo](./tokyo.md)
 - [Kyoto](./kyoto.md)
 - [Osaka](./osaka.md)

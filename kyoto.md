@@ -58,7 +58,7 @@ purposes.)
 stationary.
 - [Suuzando Hashimoto](https://goo.gl/maps/jt5fXzvz18K2) - Nakagyo Ward. Also v
 fancy and v traditional.
-- [Kyoto Benrido](kyotobenrido.com) - Nakagyo Ward. This one mostly had lots of
+- [Kyoto Benrido](http://kyotobenrido.com/) - Nakagyo Ward. This one mostly had lots of
 traditional post cards.
 - [mumokuteki](https://goo.gl/maps/yJ55PtUscHs) - Nakagyo Ward. This one is a
 lot of fun cute things store in the Nishiki Market. There is a bit of

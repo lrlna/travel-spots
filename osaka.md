@@ -7,7 +7,7 @@ for a while o/
 - [Cafenoto Coffee](https://goo.gl/maps/N1f9s91c7SM2) - Higashinari Ward. Just
   off the main street. Seemed like a place with a lot of locals coming by and
 chilling.
-- [Moda](modafabric-coffee.jp) - Higashinari Ward. It's a fabric store
+- [Moda](http://modafabric-coffee.jp/) - Higashinari Ward. It's a fabric store
   upstairs, and a cafe downstairs. Really sweet place, and has a good set of
 tables if you feel like computering.
 - [Hirofumi Fujita Coffee](https://goo.gl/maps/rxrRGDbFwU92) - Higashinari
@@ -37,7 +37,7 @@ walk around if you want to do a bit of shopping.
 
 
 ## Places to stay
-- [Chuan House](zaichuan.com) - Higashinari Ward. It's a v v clean guest house.
+- [Chuan House](http://zaichuan.com/) - Higashinari Ward. It's a v v clean guest house.
   A bit further away from the city centre, but it's really easy to get to
 places.
 
@@ -49,7 +49,7 @@ to just gaze up - it's neon on neon on neon on neon.
   weird thing to do, and I didn't get to see it IRL cause it's a bit far, but
 it's a processing plant with really weirdly decorated buildings. Go look at the
 google images of this place; may or may not be up your alley.
-- [Cup Noodles Museum](cupnoodles-museum.jp). Also didn't get a chance to go
+- [Cup Noodles Museum](https://www.cupnoodles-museum.jp/). Also didn't get a chance to go
   here, but looks super fun if you're into ramen.
 - [Expo Park](https://goo.gl/maps/ziTPNpK8Vao). Osaka had the 1970 expo and
   there is an entire park for it. The park has a super weird gigantic bird

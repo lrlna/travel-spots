@@ -19,7 +19,7 @@ situation.
 Not too many food recommendations. I feel like most random places I went to
 were amazing anyways o/ 
 
-- [Pink Mama](bigmammagroup.com) - 9e Arr. The interior is the most gorgeous
+- [Pink Mama](https://www.bigmammagroup.com/) - 9e Arr. The interior is the most gorgeous
   thing tbh.
 - [Le Petit Canard](https://goo.gl/maps/yoGVg2AHa7L2) - 9e Arr. Everything here
   is duck, and it's amazing. The two people who run the place are super sweet
@@ -44,7 +44,7 @@ descriptions are all in French, but I think it might be okay for non-french
 speakers too.
 - [Grand Palais](https://goo.gl/maps/QRxgVKyf8sp) - 8e Arr. They had this
   amazing exhibition called Artistes et Robots, and it was magnificent. To
-avoid waiting in line, buy your entrance ticket [online](grandpalais.fr)
+avoid waiting in line, buy your entrance ticket [online](https://grandpalais.fr/fr)
 - [Museum Pass](http://en.parismuseumpass.com). I didn't get this one myself,
   but a friend Sarah mentioned this was her go to thing to get for museums in
 Paris. Gets you to avoid queues and it's cheaper overall if you're doing a lot

@@ -10,6 +10,7 @@ Current collection includes:
 - [Tokyo](./tokyo.md)
 - [Kyoto](./kyoto.md)
 - [Osaka](./osaka.md)
+- [Pakistan](./pakistan.md)
 
 #### Contributing
 If there are typos, or I messed up the names of the neighbourhoods or places, please feel free to make a PR!
